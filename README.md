@@ -1,1 +1,1 @@
-ЗДАРОВА,ВСЕМ УСТАНОВКА ОЧЕНЬ ПРОСТА ОНА НАПИСАНО ТУТ В СТИМЕ - https://steamcommunity.com/app/17520/discussions/0/1658943116229079264/
+ЗДАРОВА,ВСЕМ УСТАНОВКА ОЧЕНЬ ПРОСТА ОНА НАПИСАНО ТУТ В СТИМЕ - https://steamcommunity.com/sharedfiles/filedetails/?id=1917470283
